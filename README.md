@@ -1,1 +1,1 @@
-# A bunch of cheats for games, I will try to add more hacks every week.
+How To Use the Iready Hack. Open Iready, use the bookmarklet on the choose a subject page, then start a lesson in the subject you want then activate Minutes Timer, then activate Timer for however long you want then sit back and watch some Netflix or Youtube.
